@@ -5,7 +5,7 @@ I'm currently pursuing B.Tech in Information Technology at VIT Vellore. I am a h
 as excellent management skills. I am eager to be challenged in order to grow and further improve my IT skills.
 
 - 😄 Pronouns: He/His/Him
-- 🌱 I’m currently exploring crypto
+- 🌱 I’m currently exploring softwares & technologies. 
 - 💞️ I’m looking to collaborate on projects with a strong focus on communication and creativity as a programmer.
 - 📫 How to reach me adityakumarsingh1009@gmail.com
 
